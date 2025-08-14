@@ -51,6 +51,6 @@ More than 90% of the products delivered.
 
 ##Final Conclusion :
 
-To improve the sales of vrinda store ,a strategic marketing plan focused on women aged 30-49 years residing in Maharastra ,karnataka,and uttarpradesh should be implemented .This demographic represents a key consumers segment, as they often make significant household and lifestyle purchases.The approach shoul include targeted digital marketing campaign and personalized promotion to capture their attention.
+To improve the sales of vrinda store ,a strategic marketing plan focused on women aged 30-49 years residing in Madhyapradesh ,Bihar ,and uttarpradesh should be implemented .This demographic represents a key consumers segment, as they often make significant household and lifestyle purchases.The approach shoul include targeted digital marketing campaign and personalized promotion to capture their attention.
 
 
